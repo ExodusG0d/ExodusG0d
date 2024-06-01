@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ExodusG0d
 - 👀 I’m interested in **stocks, asset allocation and social media**, I want to be a active participant on the Internet and spread what I know. 
-- 🌱 I’m currently learning Statistics in Fudan University. And it's not until last few weeks I've found myself fond of coding and designing. So I believe it's not too late to get started.
+- 🌱 I’m currently learning Statistics in Fudan University. And it's not until last few weeks I've found myself fond of coding and designing. So I believe it's not too late to get started. Probably it's because I'm a little bit tired of "time-wasting class" in the Financial Management and social requirement and such silly things. I finally choose to be in my small world. 
 - 📫 You can email me at brokyneverfallinluv@gmail.com. Yes, you are right. That's a silly address name.
 
 <!---
